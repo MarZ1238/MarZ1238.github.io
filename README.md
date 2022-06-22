@@ -1,2 +1,2 @@
-# MarZ1238.github.io
+# Mar.github.io
 Información de la escuela
